@@ -1,5 +1,6 @@
 - 👋 Hi, I’m Nakshatra Piplad (@naxatra2)
-- 💞️ Reach me through: (Email: rudra.nakku02@gmail.com)  (Instagram: @naxatra._)
+- 3rd Yr undergraduate at IIT KGP.
+- Reach me through: (Email: rudra.nakku02@gmail.com)  (Instagram: @naxatra._)
 - I’m interested in contributing to open source projects while listening to some chill music. 
 
 
