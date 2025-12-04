@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Nakshatra Piplad (@naxatra2)
+# Hi !!! Nakshatra Piplad here 
 - Pre final year undergraduate at IIT KGP.
 - Reach me through: (Email: nakshatrapiplad@gmail.com, nakshatra28@kgpian.iitkgp.ac.in)  (Instagram: @naxatra._)
 
